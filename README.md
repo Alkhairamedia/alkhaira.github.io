@@ -1,1 +1,1 @@
-# alkhaira.github.io
+# myschool.github.io
